@@ -1,3 +1,0 @@
-# Midnight Solutions
-
-Coming soon...
